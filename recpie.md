@@ -1,0 +1,1 @@
+wash the rice,water in it and salt,boling water
